@@ -1,1 +1,1 @@
-Hoa
+La letras no las pude hacer con responsive D:
